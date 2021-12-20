@@ -1,0 +1,2 @@
+# mazongyuan.github.io
+mublogs
